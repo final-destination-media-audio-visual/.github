@@ -15,7 +15,7 @@ The legacy continues! **Final Destination Bloodlines** brings back the heart, di
 ## 🎬 About the Ṃovie
 
 **Title:** Final Destination Bloodlines  
-**Genre:** Action, Drama, Family  
+**Genre:** Horror, Mystery  
 **Directed by:** [Insert Director's Name if known]  
 **Starring:** [Insert Cast or Legacy Characters if available]  
 **Release Year:** [Insert Year, e.g., 2025]
